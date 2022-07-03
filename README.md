@@ -1,7 +1,5 @@
-Full name - Miruki Namji
-          - Miru/Mii
+Full name is Miruki Namji
+          
 
 
-
-Age: 14
-Bday: May 7 2008
+call me Miru/Mii
